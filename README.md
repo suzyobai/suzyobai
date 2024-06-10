@@ -1,2 +1,2 @@
-# KellyJasmine
-![Alt text](https://www.freepik.com/premium-ai-image/anime-landscape-with-beach-tree_45911361.png)
+
+![GithubBanner](https://github.com/suzyobai/KellyJasmine/assets/169525299/fa3d6314-4c0b-40e5-aa56-ade3ac15897c)
